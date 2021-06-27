@@ -1,1 +1,0 @@
-# nazzalkausar.github.io
